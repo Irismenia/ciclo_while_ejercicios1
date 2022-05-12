@@ -1,0 +1,3 @@
+       DÍA DEL PROFESOR 
+
+El día 15 de mayo se celebra en colombia de el día de profesor y para mi es un honor tener a un gran profesor como lo es nuestro profesor Nestor, que en este corto tiempo me enseño cosas que yo ni sabia que existia, me hizo ver un lado que no conocia de la computacion, por ser ese profesor que se toma el tiempo para explicar cada cosa y que nos prepara para el futuro, muchas gracias profesor ¡ FELIZ DIA DEL PROFESOR !
